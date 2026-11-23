@@ -47,4 +47,4 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 
 ## 9. Contact
 
-Questions about this policy or your data: **support@noteo.app**
+Questions about this policy or your data: **shifaurrehman2006@gmail.com**

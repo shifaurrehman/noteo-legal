@@ -48,4 +48,4 @@ You may stop using Noteo and delete your account at any time from Settings. We m
 
 ## 9. Contact
 
-Questions about these terms: **support@noteo.app**
+Questions about these terms: **shifaurrehman2006@gmail.com**
